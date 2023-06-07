@@ -1,0 +1,1 @@
+It is logic to divide
